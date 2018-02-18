@@ -4,7 +4,7 @@
    
    Answer: 
 
-2. Decode the following text: "TrgSfy rh z xlwv slhgrmt kozgulin uli evihrlm xlmgilo zmw xloozylizgrlm. Rg ovgh blf zmw lgsvih dlip gltvgsvi lm kilqvxgh uiln zmbdsviv."
+2. Decode the following text: "HjuIvc jt b dpef iptujoh qmbugpsn gps wfstjpo dpouspm boe dpmmbcpsbujpo."
    
    Answer: 
 
