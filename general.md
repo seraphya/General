@@ -4,7 +4,7 @@
    
    Answer: 
 
-2. Decode the following text: "HjuIvc jt b dpef iptujoh qmbugpsn gps wfstjpo dpouspm boe dpmmbcpsbujpo."
+2. Decode the following text: "HjuIvc jt b qmbugpsn gps wfstjpo dpouspm boe dpmmbcpsbujpo."
    
    Answer: 
 
